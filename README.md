@@ -1,0 +1,2 @@
+# VPNYOOZ.PROXY
+Free-Internet
